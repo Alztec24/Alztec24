@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Alztec24
+- 👀 I’m interested in Astrophysics
+- 🌱 I’m currently learning How to put my work online so other people can see it
+- 💞️ I’m looking to collaborate on Nothing, please don't talk to me unless you are hiring
+- 📫 How to reach me peterjrdecker@gmail.com for buisness Alztec24#7049 on discord for not
